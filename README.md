@@ -3,7 +3,6 @@ Repo for RainbowCrystal Data
 
 At this juncture, there will be a spread of links across the net to connect the project RainbowCrystal to it's expressions.
 
-Dancing Indian God
                           ____,......__
                      _, -'' _________,..i''--.._
                  ,.-'' ,.-''             '' ... '`-._
