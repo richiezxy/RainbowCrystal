@@ -7,6 +7,9 @@ At this juncture, there will be a spread of links across the net to connect the 
                             Remember to Breathe
 
 
-
+Mystic Circle:
 https://themysticcircle.net/richiebreathe
+
+Bonfine (clothing prints)
+https://www.bonfire.com/welcome/b271382696fc4/
 
