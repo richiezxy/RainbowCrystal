@@ -10,7 +10,7 @@ Yoga Teachings:
 https://RainbowCrystal.org
 
 Support the Project: 
-Ko-fi: https://ko-fi.com/imaginaut.online
+Ko-fi: https://ko-fi.com/imaginautonline
 
 Bonfine (clothing prints)
 https://www.bonfire.com/store/rainbowcrystal/
